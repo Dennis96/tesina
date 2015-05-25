@@ -1,3 +1,0 @@
-# tesina
-tesina
-si inizia
